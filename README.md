@@ -25,7 +25,7 @@
 
 🤝 **如何联系我**
 
-- 📧 邮件：divinemadoka@outlook.com
+- 📧 邮件：s@madokax.com
 
 ---
 
