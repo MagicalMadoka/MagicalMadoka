@@ -26,6 +26,7 @@
 🤝 **如何联系我**
 
 - 📧 邮件：s@madokax.com
+- 📱 Telegram群组：[加入](https://t.me/+iNf8qQk0KUpkYmEx)
 
 ---
 
